@@ -7,5 +7,6 @@ https://docs.google.com/document/d/1YyqGUtQv6dHunpgVlYmwdXo_AaFBCCXhqjh65EDaEWg/
 
 Practice Written Exam:
 https://docs.google.com/document/d/1FlVrIWeLfl5Ock_dgqnEITQyFlc-uwr35o8P_7d4yQ8/edit?usp=sharing
+
 Solution:
 https://docs.google.com/document/d/1wnObsLgW-vAnHGwheCZoOazqgi8wGIaz6zhPCHnYsGM/edit?usp=sharing
